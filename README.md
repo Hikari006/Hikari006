@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on AI and ML models & along with DSA ✧˚ · .<br>👯 I’m looking to collaborate on AI and ML based projects and also with designing <br>🤝 I’m looking for help with cyber security<br>🌱 I’m currently learning DL & neurals<br>💬 Ask me about anything related to AI , ML and DSA ✧˚ · .<br>⚡ Fun fact: i play games when m bored i study when m depressed ✧.* 
+🔭 I’m currently working on AI and ML domain ✧˚ · .<br>👯 I’m looking to collaborate on AI and ML based projects and also with designing <br>🤝 I’m looking for help with cyber security<br>🌱 I’m currently learning DL & neurals<br>💬 Ask me about anything related to AI , ML and DSA ✧˚ · .<br>⚡ Fun fact: i play games when m bored i study when m depressed ✧.* 
 
 
 ## 🌐 Socials:
